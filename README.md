@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @wdlight24
+- 👋 Hi, I’m @wdlight24 my name is shivam roy and i am from westbengal.
 - 👀 I’m interested in developing new apps and games.
 - 🌱 I’m currently learning in class 10
 - 📫 How to reach me ... email :- dollyroy891@gmail.com
